@@ -15,4 +15,4 @@
 
 ## 📧 Contact
 
-有任何疑问，欢迎随时联系我们. Email: gaofeng@ouc.edu.cn   wjy6854@163.com
+有任何疑问，欢迎随时联系我们. Email:    wjy6854@163.com  gaofeng@ouc.edu.cn
